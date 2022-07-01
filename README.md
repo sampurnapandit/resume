@@ -1,1 +1,0 @@
-# sampurna-s-resume
